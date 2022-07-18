@@ -1,0 +1,3 @@
+- 👋 Olá eu sou @BrunnoDoPrado
+- 👀 Eu estou interessado no curso
+- E sou da 1 D CEPB
